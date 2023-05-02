@@ -1,6 +1,6 @@
-1. https://ibb.co/ns8wjF9
+1. https://ibb.co/CQctJB9
 
-2. https://ibb.co/CQctJB9
+2. https://ibb.co/ns8wjF9
 
 3. https://ibb.co/X3r6Bc5
 
